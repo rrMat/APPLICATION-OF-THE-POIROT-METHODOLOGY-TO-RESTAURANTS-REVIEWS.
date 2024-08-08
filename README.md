@@ -12,4 +12,3 @@ which are the reasons behind a bad review. It was chosen to focus on extremely
 negative reviews because they are the ones that even in a small amount can
 influence a restaurant making it fall off the charts, for this reason it is my belief
 that there is a lot to be learned from them.
-vii
